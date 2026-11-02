@@ -1,1 +1,1 @@
-# skills
+Skills I am currently developing right now are my calculus skills, organization, and studying. In the future I am planning to take more hard classes so in my data science and math classes, I plan to develop probability skills, coding skills like in Python or R, and even time management because I plan to get a job while balancing sorority life. 
